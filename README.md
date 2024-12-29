@@ -1,10 +1,10 @@
 KELOMPOK 5
 
-Hendra Fathur Rachman (23050974011)
+1. Hendra Fathur Rachman (23050974011)
 
-Nur Halimatus S.(23050974013)
+2. Nur Halimatus S.(23050974013)
 
-Winasari Rahma (23050974033)
+3. Winasari Rahma (23050974033)
 
 KLINK LINK BERIKUT UNUTUK MENGUNDUH APLIKASI COURSE
 
